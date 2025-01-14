@@ -25,7 +25,7 @@ Lily Bearing’s extensive catalog of thin-section bearings offered a unique sol
 Image: Our Newly Developed In-Hub Assembly with Thin Section Bearings from Lily Bearing
 
 ![WhatsApp Image 2024-12-30 at 16 45 11_3ed693b4](https://github.com/user-attachments/assets/6c54c6f8-e259-46c7-abde-79cd1e986f94)
-Image: The thin section bearings we received form Lily Bearing
+Image: The thin section bearings we received from Lily Bearing
 
 ## Lily Bearing:
 
